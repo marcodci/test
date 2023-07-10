@@ -1,4 +1,4 @@
-# CURRICULM
+# CURRICULUM
 
 ## BIO
 
